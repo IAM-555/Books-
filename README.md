@@ -1,0 +1,1 @@
+Este repositorio recoila informacion bajada de internet sin inteciones de lucrar con ella, si se vieran afectado algun derecho de autor o propiedad intelectual, por favor informar de inmediato y el archivo se´ra removido, están recopliados solo con el fin de compartir con estudiantes y makers.
